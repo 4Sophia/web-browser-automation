@@ -1,1 +1,1 @@
-https://multilogin.com/  antidetect browser vor web automation
+https://multilogin.com/  antidetect browser for web automation
